@@ -3,9 +3,9 @@ Let it rain from your mind
 
 Shey ko loud ni???
 
-No, E soro!!!
-
 Soro soke
 😀
 
+I think I've begin to love this
 
+We move!!!
